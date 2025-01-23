@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Owl.someone01@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: 
+
 
 <!---
 DENYIPPEEE/DENYIPPEEE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
