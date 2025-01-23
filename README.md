@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DENYIPPEEE
 - 👀 I’m interested in: Meeting people and learning code
 - 🌱 I’m currently learning: Code in general
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on: Pretty much anything, to get experience.  
 - 📫 How to reach me: Owl.someone01@gmail.com
 - 😄 Pronouns: She/Her
 
